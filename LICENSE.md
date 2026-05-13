@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with ultimate Script for steal a brainrot, the #1 Script. Includes invisibility and auto-upgrade for
 
 
 
